@@ -20,3 +20,5 @@
 
 ![tumblr_59bc623e88e96a26c90f54e9f083be60_81117a30_75](https://github.com/user-attachments/assets/5001aadd-7afe-4bf9-a406-1626b9dffc50)
  forsaken, regretevator, cry of fear, warrior cats, cookie run
+ 
+<img width="400" height="51" alt="tumblr_fdbc4a26ba57817412f58b6da1ea4e46_bcc0741c_400" src="https://github.com/user-attachments/assets/896717b9-9ae3-4df9-958a-04cc5255e7a1" />
