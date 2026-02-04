@@ -6,7 +6,7 @@
 
 ### SOMETHING ABOUT ME :
 
-‎‎cz / eng • 6teen • cosplayer 🎧
+‎‎cz / eng • 5teen • cosplayer 🎧
 
 🐛‎ ‎ ᛝ‎ ‎‎  ‎muy dear wife @wishlizx  <3
 
@@ -22,3 +22,8 @@
  forsaken, regretevator, cry of fear, warrior cats, cookie run
  
 <img width="400" height="51" alt="tumblr_fdbc4a26ba57817412f58b6da1ea4e46_bcc0741c_400" src="https://github.com/user-attachments/assets/896717b9-9ae3-4df9-958a-04cc5255e7a1" />
+
+![tumblr_3a1764a9ef1303400b633e5fc97969e3_8c901f17_400](https://github.com/user-attachments/assets/3c72a033-52b7-4008-a409-b5da57549674)
+![tumblr_fcf5f3ecf74210572fdc0e15397376d8_cea4d350_75](https://github.com/user-attachments/assets/8f647bee-092d-4cd7-82a3-e06fb1904934)
+
+
